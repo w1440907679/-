@@ -1,2 +1,1 @@
-# -
-嘻嘻
+1.68$haha.xinke.website
